@@ -2,7 +2,7 @@
 ![image](https://user-images.githubusercontent.com/81493223/129195290-c31262f0-fa54-4676-b386-b68b375e2266.png)
 
 
-Senior Web and Mobile app developer having 7+ years of development.
+Senior Web and Mobile app developer having 8+ years of development.
 
 - 🔭 Don't: Ask what the company can do for him.
 - 💬 Do: Ask what this developer can do for the company.
